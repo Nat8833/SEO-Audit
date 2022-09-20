@@ -1,4 +1,4 @@
-# SEO-Audit
+# ⭐️ Premium SEO Audit
 We produce a **Premium SEO Technical Report** in ***pdf format***, including errors and recommendations on how to fix it. 🛠
 
 Whether you manage a ***blog***, an ***e-commerce website*** or an ***online software***, this **Expert SEO Audit** will allow you to ***plan and manage the growth of your business easily***!
@@ -12,7 +12,7 @@ You will receive an **Expert Full SEO Audit** of your ***website***, ***ecommerc
 
 ---
 
-## Premium SEO Audit contains but is not limited to:
+## ➡️ Premium SEO Audit contains but is not limited to:
 
 
 
